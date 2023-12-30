@@ -1,7 +1,7 @@
 <img src="https://readme-typing-svg.herokuapp.com/?font=mono&size=30&duration=4000&color=FF0000&center=falso&vCenter=falso&lines=ANA-CAPIVARA+MDS;MAIS+LINDA+DO+BR+✰✰✰;100%+GOSTOSA+✰✰✰;✰ACLARA-121-DOMINA✰">
 
 <div align="center">
-<img src="https://i.ibb.co/5GNMG9g/IMG-20231229-WA0040.png" alt="Cronos MD - BOT" width="300" />
+<img src="https://i.ibb.co/5GNMG9g/IMG-20231229-WA0040.png" alt="Cronos MD - BOT" width="300" /> (https://www.instagram.com/_aclarafxz)
 
 </div>
 <p align="center">
